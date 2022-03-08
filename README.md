@@ -1,2 +1,2 @@
 # notes
-Too young, too simple, simetimes naive!
+Too young, too simple, sometimes naive!
